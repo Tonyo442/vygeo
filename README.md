@@ -2,4 +2,4 @@
 
 Repozitář pro předmět VYGEO
 
-Tiché hučení kol
+Tiché hučení kol na dlažebních kostkách
